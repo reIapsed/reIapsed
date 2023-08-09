@@ -5,15 +5,13 @@
 
 ![cloud_stamp_by_sitarplayerix_d1sgzp5-fullview](https://github.com/chiakaos/chiakaos/assets/118645754/00e58fdb-f9bf-44f1-ab4a-f665cb8559bb)![zack_stamp_by_sitarplayerix_d24m3mj-fullview](https://github.com/chiakaos/chiakaos/assets/118645754/e1c0daea-57c8-4811-92b5-d33b0b6840c0)![d1mcxcr-024450a2-a887-4493-816b-1109c8479b3b](https://github.com/chiakaos/chiakaos/assets/118645754/052bd20d-b229-47fc-9ccf-891435588d89)![tumblr_84903edef0364645b142b1c80d6fa19e_d2e5eac7_100](https://github.com/chiakaos/chiakaos/assets/118645754/9318da5c-160b-48ca-9eed-03a79925c014)
 
+![c41d2937](https://github.com/chiakaos/chiakaos/assets/118645754/972a31df-0a43-4025-a33d-c0f7f911cede)![8e2b06bd](https://github.com/chiakaos/chiakaos/assets/118645754/65477033-09be-4717-b035-c46aed367f07)![3aa4061d](https://github.com/chiakaos/chiakaos/assets/118645754/89f42667-53f6-46e8-a6aa-73ebc2124882)![821a3990](https://github.com/chiakaos/chiakaos/assets/118645754/46e92349-4f9d-429e-910c-abe5d40f1fe3)
 
-![squall_dissidia_stamp_by_emeraldsora_d1yrdu5-fullview](https://github.com/chiakaos/chiakaos/assets/118645754/be18ab9f-e472-46e0-a787-1715309540ee)
+
+
+
+
 
 
 
 ![blinkies26](https://github.com/chiakaos/chiakaos/assets/118645754/3b451afd-ce94-45b0-8b19-2c560c4b2933)![68747470733a2f2f692e696d6775722e636f6d2f766a57303248762e676966](https://github.com/chiakaos/chiakaos/assets/118645754/5a82d58f-1238-4f50-b7bb-46169aae0469)
-
-
-![c8d4d434d93470ba61811ae29210232e](https://github.com/chiakaos/chiakaos/assets/118645754/4f9c1697-6f38-466b-af41-541f0e0edd08)
-
-dpont take some of these seriouslyPlease
-
