@@ -15,3 +15,5 @@
 
 ![c8d4d434d93470ba61811ae29210232e](https://github.com/chiakaos/chiakaos/assets/118645754/4f9c1697-6f38-466b-af41-541f0e0edd08)
 
+dpont take some of these seriouslyPlease
+
