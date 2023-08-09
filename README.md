@@ -9,6 +9,12 @@
 
 ![76aaa578](https://github.com/chiakaos/chiakaos/assets/118645754/87c72d9a-39a2-4c3f-937e-e51997689325)![d8luvxn-40777fb1-37d4-42c6-aaef-9a46340dbbd1](https://github.com/chiakaos/chiakaos/assets/118645754/734f5c6b-5f84-4130-9e17-c0fbff381199)![d4vfd8e-554bcd41-d852-4b03-b43e-7b4e6c505d29](https://github.com/chiakaos/chiakaos/assets/118645754/8c200246-614d-4078-9ae1-08c5de7902ec)![ezgif com-add-text](https://github.com/chiakaos/chiakaos/assets/118645754/666330b7-622f-4598-9b1c-c98f9a51f1e3)
 
+![tumblr_pucb1sSHXk1xbgu08o2_100](https://github.com/chiakaos/chiakaos/assets/118645754/c94248e1-7cf0-476e-b5d3-bd3d5a958ea1)![tumblr_pw9jl8vveA1xbgu08o3_100](https://github.com/chiakaos/chiakaos/assets/118645754/e8ed7ee4-7ba4-410b-8fe8-2d3d7e42eab9)![f3f9924f](https://github.com/chiakaos/chiakaos/assets/118645754/4f708005-74a1-48fd-a7fc-04a17918b226)![tumblr_inline_pe6lvuFa5A1v11djx_1280](https://github.com/chiakaos/chiakaos/assets/118645754/ac35306e-ef4e-4ecc-a895-a3f561979fb1)
+
+
+
+
+
 
 
 
