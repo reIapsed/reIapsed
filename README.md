@@ -13,5 +13,3 @@
 
 ![blinkies26](https://github.com/chiakaos/chiakaos/assets/118645754/3b451afd-ce94-45b0-8b19-2c560c4b2933)![68747470733a2f2f692e696d6775722e636f6d2f766a57303248762e676966](https://github.com/chiakaos/chiakaos/assets/118645754/5a82d58f-1238-4f50-b7bb-46169aae0469)
 
-HELLO TAVI!!!!!!!!!!!!!!!!!!!!!
-![YUZUBSAA](https://github.com/chiakaos/chiakaos/assets/118645754/29dac74b-ac05-4815-aa68-7b2d2b4277fb)
