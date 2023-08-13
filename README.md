@@ -12,3 +12,6 @@
 ![tumblr_pucb1sSHXk1xbgu08o2_100](https://github.com/chiakaos/chiakaos/assets/118645754/c94248e1-7cf0-476e-b5d3-bd3d5a958ea1)![tumblr_pw9jl8vveA1xbgu08o3_100](https://github.com/chiakaos/chiakaos/assets/118645754/e8ed7ee4-7ba4-410b-8fe8-2d3d7e42eab9)![f3f9924f](https://github.com/chiakaos/chiakaos/assets/118645754/4f708005-74a1-48fd-a7fc-04a17918b226)![tumblr_inline_pe6lvuFa5A1v11djx_1280](https://github.com/chiakaos/chiakaos/assets/118645754/ac35306e-ef4e-4ecc-a895-a3f561979fb1)
 
 ![blinkies26](https://github.com/chiakaos/chiakaos/assets/118645754/3b451afd-ce94-45b0-8b19-2c560c4b2933)![68747470733a2f2f692e696d6775722e636f6d2f766a57303248762e676966](https://github.com/chiakaos/chiakaos/assets/118645754/5a82d58f-1238-4f50-b7bb-46169aae0469)
+
+HELLO TAVI!!!!!!!!!!!!!!!!!!!!!
+![YUZUBSAA](https://github.com/chiakaos/chiakaos/assets/118645754/29dac74b-ac05-4815-aa68-7b2d2b4277fb)
