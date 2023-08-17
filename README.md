@@ -13,3 +13,6 @@
 
 ![blinkies26](https://github.com/chiakaos/chiakaos/assets/118645754/3b451afd-ce94-45b0-8b19-2c560c4b2933)![68747470733a2f2f692e696d6775722e636f6d2f766a57303248762e676966](https://github.com/chiakaos/chiakaos/assets/118645754/5a82d58f-1238-4f50-b7bb-46169aae0469)
 
+
+![kys](https://github.com/chiakaos/chiakaos/assets/118645754/b7d342a4-316f-4eda-8641-037f2ec02f4b)
+
