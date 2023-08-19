@@ -1,3 +1,9 @@
+![ff7](https://github.com/chiakaos/chiakaos/assets/118645754/e901333c-ac1a-442f-a3e8-62515eacd043)![ff2](https://github.com/chiakaos/chiakaos/assets/118645754/04cc0b03-2312-4753-a5c1-e47242fd9ddf)![ff4](https://github.com/chiakaos/chiakaos/assets/118645754/b2aa2a02-78fa-4d50-9c2a-5f7fab5c04ba)
+
+
+
+
+
 ![760b1444_original](https://github.com/chiakaos/chiakaos/assets/118645754/f5a11d69-87f1-4775-b575-aa0ecc62a881)![89567d97_original](https://github.com/chiakaos/chiakaos/assets/118645754/5fa8487d-881d-4ef2-a71c-a945ef543347)![dcd0451a](https://github.com/chiakaos/chiakaos/assets/118645754/815a0f82-31f9-4585-a0c7-c22458057a06)![resident_evil_2_stamp_by_laprasking_d64pqn4-fullview](https://github.com/chiakaos/chiakaos/assets/118645754/83438440-5e7e-4bb3-a637-c15bb9abbc48)
 
 ![silent_hill_2_stamp_by_selphiesk_d2ozqpf-fullview](https://github.com/chiakaos/chiakaos/assets/118645754/7ae60508-b9b2-4f67-8fb6-59ad3beeeb71)![devil_may_cry_stamp_by_kencho_d12ppy9-fullview](https://github.com/chiakaos/chiakaos/assets/118645754/8fa8ad46-58ab-49e1-9e0c-af28817bd1c7)![ffvii__ac_stamp_iii_by_violet_waves_d1ohto7-fullview](https://github.com/chiakaos/chiakaos/assets/118645754/1eb9326c-2912-44eb-be0a-b79dbed6950a)![proud_fudanshi__stamp__by_glassesrabbit_dg2xpyp-fullview](https://github.com/chiakaos/chiakaos/assets/118645754/6dce8c38-630f-48ed-b6d1-d2eb1b5d578c)<img align="right" width="300" height="300" src="https://github.com/chiakaos/chiakaos/assets/118645754/f403b5bf-dc81-44f2-89a2-c25e7d8b25c5">
