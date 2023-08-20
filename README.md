@@ -1,6 +1,10 @@
-![ff7](https://github.com/chiakaos/chiakaos/assets/118645754/e901333c-ac1a-442f-a3e8-62515eacd043)![ff2](https://github.com/chiakaos/chiakaos/assets/118645754/04cc0b03-2312-4753-a5c1-e47242fd9ddf)![ff4](https://github.com/chiakaos/chiakaos/assets/118645754/b2aa2a02-78fa-4d50-9c2a-5f7fab5c04ba)![squall_leonhart_stamp_by_uchiha_itachi111_d2y4rts-fullview](https://github.com/chiakaos/chiakaos/assets/118645754/a08e49fa-0e1e-41f0-9b28-d81ca15e5b89)
+![ff7](https://github.com/chiakaos/chiakaos/assets/118645754/e901333c-ac1a-442f-a3e8-62515eacd043)![ff2](https://github.com/chiakaos/chiakaos/assets/118645754/04cc0b03-2312-4753-a5c1-e47242fd9ddf)![ff4](https://github.com/chiakaos/chiakaos/assets/118645754/b2aa2a02-78fa-4d50-9c2a-5f7fab5c04ba)
 
 
+
+
+
+![d3g0889-1312e0f2-b586-49f0-9ed8-e4c58dfb76dd](https://github.com/chiakaos/chiakaos/assets/118645754/d86beaf8-6309-414d-8cf3-8740f83fef4b)![squall_leonhart_stamp_by_uchiha_itachi111_d2y4rts-fullview](https://github.com/chiakaos/chiakaos/assets/118645754/a08e49fa-0e1e-41f0-9b28-d81ca15e5b89)![o](https://github.com/chiakaos/chiakaos/assets/118645754/8cc18c41-d607-447c-9907-b8f6f06e6013)![d3g0898-e62f54cf-4caa-4042-91a0-574a0aece02d (1)](https://github.com/chiakaos/chiakaos/assets/118645754/a70ab071-de37-4441-93ea-88022c23d168)
 
 
 
@@ -22,4 +26,6 @@
 
 
 ![kys](https://github.com/chiakaos/chiakaos/assets/118645754/b7d342a4-316f-4eda-8641-037f2ec02f4b)
+
+
 
