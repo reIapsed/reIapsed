@@ -22,7 +22,14 @@
 
 ![tumblr_pucb1sSHXk1xbgu08o2_100](https://github.com/chiakaos/chiakaos/assets/118645754/c94248e1-7cf0-476e-b5d3-bd3d5a958ea1)![tumblr_pw9jl8vveA1xbgu08o3_100](https://github.com/chiakaos/chiakaos/assets/118645754/e8ed7ee4-7ba4-410b-8fe8-2d3d7e42eab9)![f3f9924f](https://github.com/chiakaos/chiakaos/assets/118645754/4f708005-74a1-48fd-a7fc-04a17918b226)![tumblr_inline_pe6lvuFa5A1v11djx_1280](https://github.com/chiakaos/chiakaos/assets/118645754/ac35306e-ef4e-4ecc-a895-a3f561979fb1)
 
+![___leon_fan____stamp_by_claire_wesker1_d2ey4il-fullview](https://github.com/chiakaos/chiakaos/assets/118645754/b23a25ef-d8a8-466e-a046-fe81b036f2e3)![oo_clairey___stamp_oo_by_ll_sleon_ll_d20el2g-fullview](https://github.com/chiakaos/chiakaos/assets/118645754/7f63336a-ab66-4cc9-8b0e-bbef92f34828)![d1my4qd-e2fc62df-e05f-47f3-a41c-f67dda973233](https://github.com/chiakaos/chiakaos/assets/118645754/a567eb9d-c7cc-4d67-8682-b9a489db3ec6)![squall___dissidia_by_squallxzell_leonhart_d7e4by5-fullview](https://github.com/chiakaos/chiakaos/assets/118645754/4591366d-15f3-4577-80d3-ce6498514da5)
+
+
+
+
+
 ![blinkies26](https://github.com/chiakaos/chiakaos/assets/118645754/3b451afd-ce94-45b0-8b19-2c560c4b2933)![68747470733a2f2f692e696d6775722e636f6d2f766a57303248762e676966](https://github.com/chiakaos/chiakaos/assets/118645754/5a82d58f-1238-4f50-b7bb-46169aae0469)
+
 
 
 ![kys](https://github.com/chiakaos/chiakaos/assets/118645754/b7d342a4-316f-4eda-8641-037f2ec02f4b)
