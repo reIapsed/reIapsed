@@ -34,5 +34,7 @@
 
 ![kys](https://github.com/chiakaos/chiakaos/assets/118645754/b7d342a4-316f-4eda-8641-037f2ec02f4b)
 
+Ok Did I eat OrDid i eatt Whattttt😍😍😍😍😍😍
+![kyaa](https://github.com/chiakaos/chiakaos/assets/118645754/9fef636d-e03a-4b6e-97dd-dff479f84f0c)
 
 
