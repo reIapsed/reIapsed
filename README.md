@@ -1,13 +1,9 @@
-## When the xavier blunt hits 
+## When the xavier Blunt hits 
 
 <img src="https://github.com/chiakaos/chiakaos/assets/118645754/3e183fd4-fa13-4ff8-828d-1b30c427eb36" width="200" height="200" align="right">
 
 
 ![ff7](https://github.com/chiakaos/chiakaos/assets/118645754/e901333c-ac1a-442f-a3e8-62515eacd043)![ff2](https://github.com/chiakaos/chiakaos/assets/118645754/04cc0b03-2312-4753-a5c1-e47242fd9ddf)![ff4](https://github.com/chiakaos/chiakaos/assets/118645754/b2aa2a02-78fa-4d50-9c2a-5f7fab5c04ba)
-
-
-
-
 
 ![d3g0889-1312e0f2-b586-49f0-9ed8-e4c58dfb76dd](https://github.com/chiakaos/chiakaos/assets/118645754/d86beaf8-6309-414d-8cf3-8740f83fef4b)![squall_leonhart_stamp_by_uchiha_itachi111_d2y4rts-fullview](https://github.com/chiakaos/chiakaos/assets/118645754/a08e49fa-0e1e-41f0-9b28-d81ca15e5b89)![o](https://github.com/chiakaos/chiakaos/assets/118645754/8cc18c41-d607-447c-9907-b8f6f06e6013)![d3g0898-e62f54cf-4caa-4042-91a0-574a0aece02d (1)](https://github.com/chiakaos/chiakaos/assets/118645754/a70ab071-de37-4441-93ea-88022c23d168)
 
@@ -28,6 +24,8 @@
 ![tumblr_pucb1sSHXk1xbgu08o2_100](https://github.com/chiakaos/chiakaos/assets/118645754/c94248e1-7cf0-476e-b5d3-bd3d5a958ea1)![tumblr_pw9jl8vveA1xbgu08o3_100](https://github.com/chiakaos/chiakaos/assets/118645754/e8ed7ee4-7ba4-410b-8fe8-2d3d7e42eab9)![f3f9924f](https://github.com/chiakaos/chiakaos/assets/118645754/4f708005-74a1-48fd-a7fc-04a17918b226)![tumblr_inline_pe6lvuFa5A1v11djx_1280](https://github.com/chiakaos/chiakaos/assets/118645754/ac35306e-ef4e-4ecc-a895-a3f561979fb1)
 
 ![___leon_fan____stamp_by_claire_wesker1_d2ey4il-fullview](https://github.com/chiakaos/chiakaos/assets/118645754/b23a25ef-d8a8-466e-a046-fe81b036f2e3)![oo_clairey___stamp_oo_by_ll_sleon_ll_d20el2g-fullview](https://github.com/chiakaos/chiakaos/assets/118645754/7f63336a-ab66-4cc9-8b0e-bbef92f34828)![d1my4qd-e2fc62df-e05f-47f3-a41c-f67dda973233](https://github.com/chiakaos/chiakaos/assets/118645754/a567eb9d-c7cc-4d67-8682-b9a489db3ec6)![squall___dissidia_by_squallxzell_leonhart_d7e4by5-fullview](https://github.com/chiakaos/chiakaos/assets/118645754/4591366d-15f3-4577-80d3-ce6498514da5)
+
+![image](https://github.com/chiakaos/chiakaos/assets/118645754/835ded25-df6b-40f3-800b-bacbd3393bfd)![image](https://github.com/chiakaos/chiakaos/assets/118645754/9e0dba50-4b99-423b-89a9-a3bab9a9ba0f)![image](https://github.com/chiakaos/chiakaos/assets/118645754/3a8948c8-f836-43fc-b31e-cef640614f08)![image](https://github.com/chiakaos/chiakaos/assets/118645754/e61bc747-8e7c-4b44-bdfc-8c80ea6ec7bb)
 
 
 
