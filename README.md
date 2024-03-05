@@ -6,6 +6,16 @@
 
 ![image](https://github.com/chiakaos/chiakaos/assets/118645754/1def7091-7e97-4f91-8665-9abf315b28cd)![image](https://github.com/chiakaos/chiakaos/assets/118645754/05435047-a2bb-4dc4-ac80-5409f20aff12)![image](https://github.com/chiakaos/chiakaos/assets/118645754/91ae5254-155e-46d3-8c8b-9bb09b19341e)
 
+![image](https://github.com/chiakaos/chiakaos/assets/118645754/66836085-eb61-476f-88f8-0d433e607daa)
+![d4op4nw-83348f92-9ef4-4f47-9025-f6f62e6655f2](https://github.com/chiakaos/chiakaos/assets/118645754/df4314ae-1640-4693-8c43-780063c3278e)
+![d3i3fin-f197111b-00b9-4553-b020-ed0b38bc791f](https://github.com/chiakaos/chiakaos/assets/118645754/ab0d988c-1b36-467f-a420-d9c89379147a)
+![image](https://github.com/chiakaos/chiakaos/assets/118645754/21391b11-38c5-489c-bed2-6585bb402cbc)
+
+![image](https://github.com/chiakaos/chiakaos/assets/118645754/0aaf2bda-a468-4641-9628-975628f933ad)
+![image](https://github.com/chiakaos/chiakaos/assets/118645754/2c0de7a6-7e02-43e3-baef-09c0c92fd2b4)
+![image](https://github.com/chiakaos/chiakaos/assets/118645754/309f8692-b01d-483c-aa34-05bf3770a2e4)
+![image](https://github.com/chiakaos/chiakaos/assets/118645754/cbf8faf0-b9d8-4f4f-a7ea-5c20f3113145)
+
 ![d3g0889-1312e0f2-b586-49f0-9ed8-e4c58dfb76dd](https://github.com/chiakaos/chiakaos/assets/118645754/d86beaf8-6309-414d-8cf3-8740f83fef4b)![squall_leonhart_stamp_by_uchiha_itachi111_d2y4rts-fullview](https://github.com/chiakaos/chiakaos/assets/118645754/a08e49fa-0e1e-41f0-9b28-d81ca15e5b89)![o](https://github.com/chiakaos/chiakaos/assets/118645754/8cc18c41-d607-447c-9907-b8f6f06e6013)![d3g0898-e62f54cf-4caa-4042-91a0-574a0aece02d (1)](https://github.com/chiakaos/chiakaos/assets/118645754/a70ab071-de37-4441-93ea-88022c23d168)
 
 
@@ -31,9 +41,9 @@
 
 
 
-
 ![blinkies26](https://github.com/chiakaos/chiakaos/assets/118645754/3b451afd-ce94-45b0-8b19-2c560c4b2933)![68747470733a2f2f692e696d6775722e636f6d2f766a57303248762e676966](https://github.com/chiakaos/chiakaos/assets/118645754/5a82d58f-1238-4f50-b7bb-46169aae0469)
 
+![dal7nx4-a1a25415-83e6-4411-be94-e768dad262cd](https://github.com/chiakaos/chiakaos/assets/118645754/ada70b21-36e1-4d5f-af4a-f568769894e1)
 
 
 ![kys](https://github.com/chiakaos/chiakaos/assets/118645754/b7d342a4-316f-4eda-8641-037f2ec02f4b)
