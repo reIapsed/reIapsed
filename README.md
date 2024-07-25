@@ -1,4 +1,4 @@
-## When the xavier Blunt hits 
+
 
 <img src="https://github.com/chiakaos/chiakaos/assets/118645754/3e183fd4-fa13-4ff8-828d-1b30c427eb36" width="200" height="200" align="right">
 
