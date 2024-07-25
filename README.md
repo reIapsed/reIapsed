@@ -4,7 +4,6 @@
 
 ![ff7](https://github.com/chiakaos/chiakaos/assets/118645754/e901333c-ac1a-442f-a3e8-62515eacd043)![ff2](https://github.com/chiakaos/chiakaos/assets/118645754/04cc0b03-2312-4753-a5c1-e47242fd9ddf)![ff4](https://github.com/chiakaos/chiakaos/assets/118645754/b2aa2a02-78fa-4d50-9c2a-5f7fab5c04ba)
 
-![image](https://github.com/chiakaos/chiakaos/assets/118645754/1def7091-7e97-4f91-8665-9abf315b28cd)![image](https://github.com/chiakaos/chiakaos/assets/118645754/05435047-a2bb-4dc4-ac80-5409f20aff12)![image](https://github.com/chiakaos/chiakaos/assets/118645754/91ae5254-155e-46d3-8c8b-9bb09b19341e)
 
 ![image](https://github.com/chiakaos/chiakaos/assets/118645754/66836085-eb61-476f-88f8-0d433e607daa)
 ![d4op4nw-83348f92-9ef4-4f47-9025-f6f62e6655f2](https://github.com/chiakaos/chiakaos/assets/118645754/df4314ae-1640-4693-8c43-780063c3278e)
@@ -45,10 +44,6 @@
 
 ![dal7nx4-a1a25415-83e6-4411-be94-e768dad262cd](https://github.com/chiakaos/chiakaos/assets/118645754/ada70b21-36e1-4d5f-af4a-f568769894e1)
 
-
-![kys](https://github.com/chiakaos/chiakaos/assets/118645754/b7d342a4-316f-4eda-8641-037f2ec02f4b)
-
-![image](https://github.com/chiakaos/chiakaos/assets/118645754/3c9046b2-95e1-46dd-932f-ab8e70ec4199)
 
 
 
